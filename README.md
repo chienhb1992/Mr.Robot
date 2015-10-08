@@ -1,2 +1,3 @@
 # Mr.Robot
-if you fail , you can try.. again , again and again
+if you fail , you can try.. again , again and again...
+i think i can win in my life..
